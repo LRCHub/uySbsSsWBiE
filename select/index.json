@@ -1,0 +1,32 @@
+{
+  "version": 1,
+  "base_track": "倍倍FIGHT!",
+  "base_artist": "CANDY TUNE",
+  "createdAt": "2025-12-18T11:08:58.236641Z",
+  "candidates": [
+    {
+      "id": "lrclib_1",
+      "source": "lrclib",
+      "title": "倍倍FIGHT!",
+      "artist": "CANDY TUNE",
+      "has_synced": true,
+      "path": "select/01_倍倍FIGHT!_CANDY_TUNE.lrc"
+    },
+    {
+      "id": "lrclib_2",
+      "source": "lrclib",
+      "title": "倍倍FIGHT! (instrumental)",
+      "artist": "CANDY TUNE",
+      "has_synced": false,
+      "path": "select/02_倍倍FIGHT!_(instrumental)_CANDY_TUNE.txt"
+    },
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "倍倍FIGHT!",
+      "artist": "CANDY TUNE",
+      "has_synced": false,
+      "path": "select/pl_01_倍倍FIGHT!_CANDY_TUNE.txt"
+    }
+  ]
+}
