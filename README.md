@@ -1,0 +1,121 @@
+# CANDY TUNE – 倍倍FIGHT!
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+倍の倍の fight
+倍倍 fight by CANDY TUNE
+（倍の倍の fight）
+（倍倍 fight by CANDY TUNE）
+
+倍の倍の fight
+倍倍 fight by CANDY TUNE
+（倍の倍の fight）
+（倍倍 fight by CANDY TUNE）
+
+本音と建前ない私
+なりたい 在りたいけど だけど
+人の目気にせず 素直な子
+なりたい 在りたいけど だけど
+
+誰かを救うということは
+過去の自分も救うことです
+誰かを愛すということは
+本当の自分を大好きになることです
+
+倍 fight 倍倍 fight 倍倍倍 fight (fight)
+何回転んでも立ち上がれ
+倍 fight 倍倍 fight 倍倍倍 fight (fight)
+厄介な問題も飛び越えろ
+
+嬉しい（倍倍倍倍）
+悲しい (bye, bye, bye, bye)
+ほら 倍の倍のバイのバイで もっと行こうよ
+倍 fight 倍倍 fight 倍倍倍 fight
+
+飽き性 根性ない状況
+やめたい やめたいけど だけど
+もっぱらネガティブ 自虐思考
+やめたい やめたいけど だけど
+
+何かを犠牲にすることは
+何かを目指すということです
+何かを目指すということは
+何かを本気で信じるということです
+
+倍 fight 倍倍 fight 倍倍倍 fight (fight)
+なんてまあ素敵なこの人生
+倍 fight 倍倍 fight 倍倍倍 fight (fight)
+だって私は そう 私だもん
+
+楽しい（倍倍倍倍）
+悔しい (bye, bye, bye, bye)
+ほら 倍の倍のバイのバイで もっと行こうよ
+倍 fight 倍倍 fight 倍倍倍 fight
+
+倍の倍の fight
+倍倍 fight by CANDY TUNE
+（倍の倍の fight）
+（倍倍 fight by CANDY TUNE）
+
+倍の倍の fight
+倍倍 fight by CANDY TUNE
+（倍の倍の fight）
+（倍倍 fight by CANDY TUNE）
+
+自分を大事に 本音を大事に
+つまずいたって（倍倍 fight）
+強い人間になりたかったって？
+今からなれるさ（倍倍 fight）
+
+有言実行 言葉に宿った魂 信じて（倍倍 fight）
+誰かと比べて落ち込んだって
+自分は自分さ（倍倍 fight）
+
+半径100キロ 幸せで満たしたいな（倍倍 fight）
+生きているだけで すごいことだから
+命を誉めよう（倍倍 fight）
+できないことより できることを
+ほら 数えてみようよ（倍倍 fight）
+すなわち とにかく倍倍アクティブ
+Bye, bye パッシブ 倍倍 fight
+
+（倍倍 fight）ほんの小さな一歩
+（倍倍 fight）大きな大きな一歩
+（倍倍 fight）どれも君にとって
+大切な（大切な）
+大切な勇気の証だよ
+
+倍 fight 倍倍 fight 倍倍倍 fight
+なんと言われても 諦めぬ
+倍 fight 倍倍 fight 倍倍倍 fight
+人生これっきり 一度っきり
+
+倍 fight 倍倍 fight 倍倍倍 fight (fight)
+何回転んでも立ち上がれ
+倍 fight 倍倍 fight 倍倍倍 fight (fight)
+厄介な問題も飛び越えろ
+
+嬉しい（倍倍倍倍）
+悲しい (bye, bye, bye, bye)
+ほら 倍の倍のバイのバイで もっと行こうよ
+倍 fight 倍倍 fight 倍倍倍 fight
+いっせーのせ 原宿から世界へ！
+
+険しい道も共に歩むんだ
+You will never walk alone
+躓いて もがいて 強くなるんだ
+Whoa-oh-oh, oh-oh-oh
+
+険しい道も共に歩むんだ
+You will never walk alone
+躓いて もがいて 強くなるんだ
+Whoa-oh-oh, oh-oh-oh
+
+明日からじゃなくて 今日だ
+今だ 君だ ここだ（倍 fight）
+忙しなくて疲れたなら
+ちょっと休むかい？（倍 rest）
+私たちがいつもそばにいるからさ
+倍 fight 倍 fight 倍 fight
+```
